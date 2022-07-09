@@ -8,6 +8,4 @@
               
             please don't bully me 
 
-
-
-</nice too meet you>
+</👋hi>
